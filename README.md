@@ -19,4 +19,6 @@ The technicality of my gender legal status and updates to Dragonkin
 
 9. use the gender dragonkin to show love to other dragonkins
 
+10. Dragonkin is just a loving nod to Tiamat. Not to be used as a form of worship. And I mean it.
+
 i inventedr the gender in 2022 and in 2023 first quarter in the official Gender Census which can be found on X/twitter and on Google
